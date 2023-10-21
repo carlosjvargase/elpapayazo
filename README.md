@@ -4,6 +4,10 @@
 ![image](https://github.com/carlosjvargase/elpapayazo/assets/104727028/1a3ed69e-842f-4f75-a47b-9e62dd3bbb1f)
 ![image](https://github.com/carlosjvargase/elpapayazo/assets/104727028/968d13bc-fad2-4548-8873-43a2a6dc1a60)
 ![image](https://github.com/carlosjvargase/elpapayazo/assets/104727028/2bf2d0df-0359-4794-8434-674d70c54050)
+![image](https://github.com/carlosjvargase/elpapayazo/assets/104727028/780b740c-6ce0-44e3-b5ae-d8c448503765)
+![image](https://github.com/carlosjvargase/elpapayazo/assets/104727028/2986a53d-fdd6-4b3c-adf9-db660152e52b)
+
+
 
 
 
