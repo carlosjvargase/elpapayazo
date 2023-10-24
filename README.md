@@ -6,6 +6,7 @@
 ![image](https://github.com/carlosjvargase/elpapayazo/assets/104727028/2bf2d0df-0359-4794-8434-674d70c54050)
 ![image](https://github.com/carlosjvargase/elpapayazo/assets/104727028/780b740c-6ce0-44e3-b5ae-d8c448503765)
 ![image](https://github.com/carlosjvargase/elpapayazo/assets/104727028/2986a53d-fdd6-4b3c-adf9-db660152e52b)
+![image](https://github.com/carlosjvargase/elpapayazo/assets/104727028/d9e8a7e4-8c67-47c3-8cc7-509924bdd4fd)
 
 
 
